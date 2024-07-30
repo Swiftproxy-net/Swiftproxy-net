@@ -1,0 +1,6 @@
+- 👋 Hi, We are @Swiftproxy-net
+- 👀 Swiftproxy specify in providing Residential Proxies & Static Residential Proxies
+- 🌱 70M+ premium IPs with access over 220+ locations worldwide
+- 📫 Contact customer support after registering for trial request
+- ⚡ Plans start at $0.7/GB
+- https://www.swiftproxy.net
